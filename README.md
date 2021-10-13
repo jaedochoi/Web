@@ -1,2 +1,1 @@
-# Web
-Working Papers by Jaedo Choi
+# Working Papers by Jaedo Choi
