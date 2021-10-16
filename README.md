@@ -1,9 +1,13 @@
 # Working Papers by Jaedo Choi
+
 <br/>
+
 I am a Ph.D. candidate in the Joint Program in Business and Economics at the University of Michigan. 
 
 I am on the job market in 2021-2022 and available for interviews at the virtual EJME and ASSA.
+
 <br/>
+
 **Research Fields**: International Economics, Macroeconomics 
 
 **Address**: 701 Tappan Ave, Ann Arbor, MI 48109
