@@ -2,9 +2,7 @@
 
 <br/>
 
-I am a Ph.D. candidate in the Joint Program in Business and Economics at the University of Michigan. 
-
-I am on the job market in 2021-2022 and available for interviews at the virtual EJME and ASSA.
+I will join the Federal Reserve Board of Governors as an economist this fall. 
 
 <br/>
 
