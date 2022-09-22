@@ -2,16 +2,16 @@
 
 <br/>
 
-I will join the Federal Reserve Board of Governors as an economist this fall. 
+Economist at the Federal Reserve Board of Governors
 
 <br/>
 
 **Research Fields**: International Economics, Macroeconomics 
 
-**Address**: 701 Tappan Ave, Ann Arbor, MI 48109
+**Address**: Constitution Ave NW &, 20th St NW, Washington, DC 20551 
 
 **Telephone**: +1 (734) 263-4680
 
-**E-mail**: jaedohi@umich.edu 
+**E-mail**: jaedohi@gmail.com
 
 **Web**: [http://www.jaedochoi.com](http://www.jaedochoi.com)
