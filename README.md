@@ -12,6 +12,6 @@ Economist at the Federal Reserve Board of Governors
 
 **Telephone**: +1 (734) 263-4680
 
-**E-mail**: jaedohi@gmail.com
+**E-mail**: jaedo.research@gmail.com
 
 **Web**: [http://www.jaedochoi.com](http://www.jaedochoi.com)
