@@ -2,13 +2,13 @@
 
 <br/>
 
-Economist at the Federal Reserve Board of Governors
+Economist at the University of Texas at Austin
 
 <br/>
 
 **Research Fields**: International Economics, Macroeconomics 
 
-**Address**: Constitution Ave NW &, 20th St NW, Washington, DC 20551 
+**Address**: 3.134C BRB, 2225 Speedway, Austin, TX 78712
 
 **Telephone**: +1 (734) 263-4680
 
