@@ -2,7 +2,8 @@
 
 <br/>
 
-Economist at the University of Texas at Austin
+Assistant Professor 
+University of Texas at Austin, Department of Economics
 
 <br/>
 
